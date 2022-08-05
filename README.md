@@ -38,4 +38,4 @@ LATEST VERSION (2022-08-03 [logo updated])
 👇To proccess👇
 </p>
 
-## 🙂➾ [Scan QR In Your Whatsapp From Here](https://replit.com/@KumuthuPrabhash
+## 🙂➾ [Scan QR In Your Whatsapp From Here](https://replit.com/https://replit.com/@KumuthuPrabhash
